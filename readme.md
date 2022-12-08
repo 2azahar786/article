@@ -4,5 +4,5 @@
 
 [Click here to view the page](https://2azahar786.hashnode.dev/introduction-of-git)
 
-## For allthe article
+## For all my article
 [Click Here](https://hashnode.com/6366c9a5fbe121bbe3337ad0/dashboard/posts)
